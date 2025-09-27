@@ -1,0 +1,1 @@
+> # your résumé is obselete
